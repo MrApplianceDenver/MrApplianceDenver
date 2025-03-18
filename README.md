@@ -8,7 +8,11 @@ Whether you’re located in Commerce City, Thorton, Westminster, Brighton, Green
 
 
 Contact us:
+
 Mr. Appliance of Denver
+
 6795 E Tennessee Ave Suite 185, Denver, CO 80224, United States
+
 720-262-9234
+
 https://www.mrappliance.com/denver/
